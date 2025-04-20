@@ -1,8 +1,6 @@
 # Tax-Accounting-
 Copy and share this link to give others access to your private ePortfolio:
 
-https://foothillcollege.instructure.com/eportfolios/5039?verifier=ueqoANqHXbvj3VppmwR47jDlvS9knTif65ds8wt1
-
 https://foothillcollege.instructure.com/eportfolios/5039/home/tax-accounting
 
 https://catalog.foothill.edu/course-outlines/ACTG-67/
